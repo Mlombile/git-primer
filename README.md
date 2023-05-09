@@ -6,3 +6,5 @@ Pray.
 Fast at least once a week. 
 Appreciate all things.
 Love your family.
+
+Read the book of Jasher
